@@ -1,1 +1,2 @@
-# WELCOME TO THE LUCKY SKILLS
+# Welcome to the Lucky Skills & Learning Center
+
